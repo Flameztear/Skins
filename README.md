@@ -1,6 +1,10 @@
 # Skins
 
-[Main (More files in extras folder)](https://flameztear.s-ul.eu/8mUvVxrD)
+[WhiteCat zdmrz hyeok plambob mix](https://flameztear.s-ul.eu/mks5pABy)
+![screenshot1174](https://github.com/user-attachments/assets/ee7e3a31-a692-4df7-b4cf-9fd34d208c79)
+
+
+[eoii v1.11 (More files in extras folder)](https://flameztear.s-ul.eu/8mUvVxrD)
 ![screenshot1109](https://github.com/Flameztear/Skins/assets/169565781/f2a0c327-6d73-4022-8155-dd9a923f09a4)
 
 [DT (Current)](https://flameztear.s-ul.eu/lu6eb7yx)
