@@ -1,6 +1,6 @@
 # Skins
 
-[WhiteCat zdmrz hyeok plambob mix](https://flameztear.s-ul.eu/mks5pABy)
+[WhiteCat zdmrz hyeok plambob mix](https://flameztear.s-ul.eu/kizLaaPW)
 ![screenshot1174](https://github.com/user-attachments/assets/ee7e3a31-a692-4df7-b4cf-9fd34d208c79)
 
 
